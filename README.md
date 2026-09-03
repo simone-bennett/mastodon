@@ -1,5 +1,5 @@
 > [!NOTE]
-> Want to learn more about Mastodon??
+> Want to learn more about Mastodon????
 > Click below to find out more in a video.
 
 <p align="center">
